@@ -2,7 +2,7 @@
 - 👀 I’m interested in working 
 - 🌱 I’m currently learning programming and english 
 - 💞️ I’m looking to collaborate on everything i can 
-- 📫 How to reach me through my Whatsapp 55 99210-5241
+- 📫 reach me through my Whatsapp 55 99210-5241
 - 😄 Pronouns: she/her 
 
 <!---
